@@ -1,4 +1,4 @@
-# HD-Video-Fiber-Optic-Cable-Installation-Kit-
+# HD-Video-Fiber-Optic-Cable-Installation-Kit
 Versitron offers HD video fiber optic cable kits for multimode and singlemode fiber, as well as plug-and-play options — delivering high-resolution video over fiber for surveillance, events, and secure installations.
 # Versitron | HD Video Fiber Optic Cable Installation Kit | HD Video to Multimode Fiber Installation Kit | HD Video to Singlemode Fiber Installation Kit | Plug and Play HD Video Fiber Installation Kit
 
